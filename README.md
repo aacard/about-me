@@ -1,1 +1,1 @@
-# Hi, im André Arthur, currently studing software enginnering in UNIPE A
+# Hi, im André Arthur, currently studing software enginnering in UNIPE 
